@@ -16,13 +16,13 @@ I connect market insight, technology understanding and creative marketing, from 
 
 [See the work](#work)[LinkedIn](https://www.linkedin.com/in/azwinkarim/)
 
-**120+**Campaigns delivered
+**120+** Campaigns delivered
 
-**70%**MQL-to-SQL conversionAutomotive Japan and Aerospace
+**70%** MQL-to-SQL conversionAutomotive Japan and Aerospace
 
-**$10M**Won business TCV supportedFY24 to FY27, marketing contribution
+**$10M** Won business TCV supportedFY24 to FY27, marketing contribution
 
-**$3.5M**FY27 pipelineReported separately from won TCV
+**$3.5M** FY27 pipelineReported separately from won TCV
 
 Selected work
 
